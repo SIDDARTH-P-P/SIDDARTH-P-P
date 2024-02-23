@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **sidhusidharth2711@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: +91 9497409454</h3>
 <p align="left">
 </p>
 
